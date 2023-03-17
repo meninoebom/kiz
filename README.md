@@ -6,8 +6,11 @@ The word Kizomba  comes from the Kimbundu language (or at least derives from it)
 Today Semba has evolved into a partner dance with large steps on a fast beat, and lots of room for playful improvisation. Traditionally, Semba was danced by men and women facing each other in lines, only touching at specific moments in the song through the hips.  The word ‘semba’ comes from ‘massemba’ meaning “to touch belly buttons” – a move that was traditionally done to show affection to a partner at social gatherings. In the 1990s, when the actual kizomba music got more and more popular, the steps of Semba were adapted to new music styles. How that new sound was forged is a topic of debate. The origins of kizomba music can be traced to the late-1970s in Angola. Kizomba is a slower more sensuous relative of of Angolan Semba and is said to have emerged as a fusion of Semba, Angolan Merengue, Kilapanga, and other Angolan music influences. It has also been said that it was influenced by Zouk, a musical movement pioneered by the French Antillean band Kassav’ in the early 1980s and by music that filtered in to Angola from Cape Verde in the 80’s and 90’s. Eduardo Paim is internationally recognized as the “father/creator of Kizomba music.”  
 
 [Eduardo Paim](https://www.youtube.com/watch?v=GLAVPmtTmT0)
+
 [Kassav](https://www.youtube.com/watch?v=YCkTTeAhERE)
+
 [Kizmoba/Semba example](https://www.youtube.com/watch?v=Q_870KuJFoQ)
+
 
 Cape Verdean  immigrants who moved to France in the 1980s were exposed to Zouk music. They blended it with a traditional Cape Verdean styles like coldeira to create cola-zouk , similar to kizomba and typically sung in  Cape Verdean Creole.  
 
@@ -21,10 +24,13 @@ Some say, Urban Kiz was created in Paris, France somewhere between 2012 and 2014
 
 Urban Kid Examples:
 [YouTube](https://www.youtube.com/watch?v=XodJYQ_MyEI)
+
 [YouTube](https://www.youtube.com/watch?v=ZMFFy6Fp4Qo)
+
 
 More to come on Tarraxo:
 [YouTube](https://www.youtube.com/watch?v=Q8O9aTbxAVE&t=44s)
+
 [YouTube](https://www.youtube.com/watch?v=370maV27BhE)
 
 
